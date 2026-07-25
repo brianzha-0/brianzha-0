@@ -1,1 +1,3 @@
-![The lost trail remembers the way again](https://github.com/brianzha-0/brianzha-0/blob/main/20250914_102541.jpg)
+# What's going on? My name is Brian, and I strongly feel that making things complete is never depleting.<br><br>The stuff I make makes me excited and expedites my learning journey. . . Without it, my identity is nothing because a strong suit of mine is bringing out my weaker points and uplifting them!<br><br>Have a look my favourite photos I've taken before in hopes to capture more?
+![The lost trail remembers the way again](/MantraMural.jpg)
+![A petunia flower is like a pet project](/BreakTheRough.jpg)
